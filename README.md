@@ -3,8 +3,8 @@
 To install the files follow this link:
  https://mega.nz/file/w8tUxJRB#6CSTf22...
  
- YOUTBE TUTORIAL:
- 
+ YOUTUBE TUTORIAL:
+ https://www.youtube.com/watch?v=t6T-NebugOc
 
 
 If you want to donate to me "MIDAS" you can do it in this BTC direction: 3LS9P4gYu8JmCN1cvbUDEME36mzYfaDJnV
